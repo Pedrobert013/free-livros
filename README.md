@@ -2,7 +2,7 @@
 
 Quando o mundo estiver unido na busca do conhecimento, e não mais lutando por dinheiro e poder, então nossa sociedade poderá enfim evoluir a um novo nível.
 
-O Free Livros disponibiliza conteúdo de dominio publico e
+O Free Livros disponibiliza conteúdo de domínio público e
 propriedade intelectual de forma totalmente gratuita, por acreditar que o
 conhecimento e a educação devem ser acessíveis e livres a toda e qualquer
 pessoa.
